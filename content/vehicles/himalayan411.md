@@ -6,6 +6,11 @@ title: Himalayan 411
 
 It's slow
 
+## Notable features
+- ABS (since 2019)
+    - rear wheel ABS can be disabled with a button on the dashboard
+- Tipover sensor kills the engine
+
 ## Specs
 - Handlebar diameter: 22.2mm (7/8")
     - RAM Torque Rail Base [RAM-408-75-1U](https://rammount.com/products/ram-408-75-1u) does not require application of rubber adhesive strip 
