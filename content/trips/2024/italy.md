@@ -593,9 +593,9 @@ I had to change all fluids in my bike, and replace both tires and Givi top case 
 
 While planning my next trip, i developed better planning tools:
 
-- [waze2gpx]([waze2gpx: Waze trip history to GPX converter](https://thestalwart.github.io/waze2gpx/)): Waze trip history to GPX converter
+- [waze2gpx](https://thestalwart.github.io/waze2gpx/): Waze trip history to GPX converter
 - [Automuseums-gpx](https://github.com/TheStalwart/Automuseums-gpx): Content of [Automuseums.info](https://automuseums.info/) website as GPX files
 - [tl;dr: Travel Info](https://tldrtravel.info/): Lots of country-specific information i wish i had before the trip
-- [Tripadvisor export to GPX]([dotswt/userscripts/Tripadvisor export to GPX.user.js at master · TheStalwart/dotswt](https://github.com/TheStalwart/dotswt/blob/master/userscripts/Tripadvisor%20export%20to%20GPX.user.js)): Work in progress, but already usable
+- [Tripadvisor export to GPX](https://github.com/TheStalwart/dotswt/blob/master/userscripts/Tripadvisor%20export%20to%20GPX.user.js): Work in progress, but already usable
 
 More app ideas to develop are still on my backlog and/or various stages of planning, research and development. I enjoyed the "release cycle" of my traveling - i plan, i find issues, i travel, i find more issues, i come back and make sweeping improvements to planning workflow, and start planning the next adventure.
