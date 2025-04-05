@@ -537,7 +537,7 @@ With absolutely nothing to do, i wasted most of the day watching motorcycle revi
 
 ## 2024.05.31
 
-While packing my stuff into the bike I've noticed some nice youngtimer cars. They were participating in [Rajd Koguta](https://rajdkoguta.com.pl/archiwum-rajdu/rajd-koguta-2024-mragowo/) charity rally, but i ran out of time to detour. My goal for today was to reach Warsaw, and for extra confidence i bought luggage straps and make sure the weight of my top box is spread onto grab handles, besides a kurwa-enforced baseplate.
+While packing my stuff into the bike I've noticed some nice youngtimer cars. They were participating in [Rajd Koguta](https://rajdkoguta.com.pl/archiwum-rajdu/rajd-koguta-2024-mragowo/) charity rally, but i ran out of time to detour. My goal for today was to reach Warsaw, and for extra confidence i bought luggage straps and made sure the weight of my top box is spread onto grab handles, besides a kurwa-enforced baseplate.
 
 I visited [Zapiecek](https://maps.app.goo.gl/MQDPhBVkMpviP1WK9) dumpling restaurant and enjoyed a traditional Polish mix. It was good.
 
