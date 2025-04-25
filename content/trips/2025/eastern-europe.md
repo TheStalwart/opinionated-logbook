@@ -125,6 +125,8 @@ It doesn't make much sense to stay in hiking-focused location with injured foot 
 
 The choice of bike finally made sense rolling through curvy mountain roads with patchwork pavement at 80km/h. The choice of tires didn't, but they're old enough that hoarding them in the garage doesn't make sense, i will just wear them out and replace later.
 
+{{< instagram DItVqxdCilj >}}
+
 On the way to my destination i encountered [Biker’s Garage Cafe](https://maps.app.goo.gl/x4NkvNvAX2zkPQUD7) and stopped for pancakes. They were good.
 
 I checked into a "1-star" [Hotel Štadión](https://maps.app.goo.gl/rzJhPC9ScGBe1ugP7) for 35 EUR/night and can't complain because anything air-conditioned will be at least double the price, and it's "culturally accurate". I am not a football enjoyer nor architect but i found it very cool that hotel building is structurally a part of stadium and support beams are exposed through the hallway leading to rooms.
