@@ -15,7 +15,7 @@ As for the route and POIs - i did not have any specific goals or milestones in m
 - Travel through Greece and take a ferry to Cyprus to visit another friend
 - Visit Serbia and Croatia
 
-What may look like lack of clear plan, is actually a more efficient way to go on adventure. I had no idea how much money and time i will spend in countries i never visited or even thoroughly researched. I knew i had enough time and money to plan the way back when i reach the far end of the area i'm about to visit.
+What may look like lack of clear plan, is actually a more efficient way to go on adventure. I had no idea how much money and time i will spend in countries i never visited or even thoroughly researched. I knew i had enough time and money to plan the way back when i reach the far end of the area I'm about to visit.
 
 As now usual, i pinned locations of [Automuseums](https://www.automuseums.info/) when deciding which city to visit next (i developed [Automuseums-gpx](https://github.com/TheStalwart/Automuseums-gpx) specifically for that), but there weren't many museums worth a detour.
 
@@ -23,7 +23,7 @@ There are two _great driving roads_ in Romania i'd like to ride on - [Transfăg�
 
 I intend to test a bunch of different navigation apps on this trip, but it's a _side-quest_, and part of my effort to collect more information for my [tldrtravel.info](https://tldrtravel.info) website.
 
-On this adventure i'm riding a bike i never intended to be my long distance tourer, but i decided that manual gearbox and reduced storage capacity are not as big of an issue as low ground clearance and small wheels of my [Burgman 650](/vehicles/burgman650/). I also wasn't confident i could get the Burgman fixed in the countries i'm going to visit.
+On this adventure i'm riding a bike i never intended to be my long distance tourer, but i decided that manual gearbox and reduced storage capacity are not as big of an issue as low ground clearance and small wheels of my [Burgman 650](/vehicles/burgman650/). I also wasn't confident i could get the Burgman fixed in the countries I'm going to visit.
 
 ## Setup
 
@@ -105,7 +105,7 @@ Woke up reasonably early in the morning and looked up some POIs in Zakopane to s
 
 In a bit over one hour of riding i parked the bike near two POIs and a couple places that serve breakfast.
 
-The first location was [Papugarnia Krupówki Zakopane](https://maps.app.goo.gl/mGTJU8ndQHgKKn377) and it was a massive disappointment. I visited Papugarnia locations in other cities previously, but this one was a very small chicken coop, the birds were loud and not very social. As i'm writing this the next day, i discovered there are _two_ Papugarnia locations in Zakopane, and the other one looks much bigger and better equipped for well-being of birds.
+The first location was [Papugarnia Krupówki Zakopane](https://maps.app.goo.gl/mGTJU8ndQHgKKn377) and it was a massive disappointment. I visited Papugarnia locations in other cities previously, but this one was a very small chicken coop, the birds were loud and not very social. As I'm writing this the next day, i discovered there are _two_ Papugarnia locations in Zakopane, and the other one looks much bigger and better equipped for well-being of birds.
 
 [MYSZOGRÓD ZAKOPANE](https://maps.app.goo.gl/1zci5zaEroXH3AU28) was excellent. It had the vibe of model railroad diorama venues - it was very fun to see structures built for the mice. Some spots seemed unreachable at first, like a helicopter with a rope hanging down, but then you notice mice inside, that obviously had no other option to get there. There were some information tablets with very basic info about different species of mice.
 
