@@ -70,7 +70,7 @@ Ran out steam at midnight again. A good to wake up early tomorrow and finish pac
 
 Spent another day packing and preparing.
 
-## 2025.04.18
+## 2025.04.18: Riga -> Marijampolė
 
 I set an ambitious goal to reach Zakopane in two days. Since i have to be back in Riga on June 5th, i want to spend most of the time in countries further away from home. Taking the fastest route that's 1100km, so two full days of riding.
 
@@ -80,7 +80,7 @@ Then i had stop in Marijampolė, Lithuania, and decided to call it a day because
 
 I booked a room in [BHB Hotel](https://maps.app.goo.gl/nLsxwGRokAXbnvFi8) and went for a dinner and discussion of Honda superiority with a friend.
 
-## 2025.04.19
+## 2025.04.19: Marijampolė -> Kraków
 
 A groupride to Białystok was as usual. There were 4x 1200cc bikes and everyone was riding way faster than i was comfortable, and capable on a 400cc air-cooled thumper. I mean, it's kinda fun, but also one of the major reasons i travel solo and don't go on any grouprides.
 
@@ -99,7 +99,7 @@ If you have extra time to spend on the road, i highly suggest _not_ taking highw
 
 I was happy to reach Krakow around 9pm. I booked a room in [Hotel Junior 2](https://maps.app.goo.gl/9HPsKKY4K87nX3Br6), and had a good sleep knowing I'm just 100km away from the first milestone, and it took two days as i wanted.
 
-## 2025.04.20
+## 2025.04.20: Zakopane, Poland
 
 Woke up reasonably early in the morning and looked up some POIs in Zakopane to start the day.
 
@@ -137,7 +137,7 @@ I spent the rest of the day writing this report and working on my other hobby pr
 
 Much like in smaller cities of Italy, bars were not open in times stated on Google Maps, so i bought a beer from hotel's reception and went to sleep early.
 
-## 2025.04.22
+## 2025.04.22: Košice, Slovakia
 
 I started the day by visiting a coffee shop that was cash only. Then i went to a different coffee shop that accepted Apple Pay.
 
