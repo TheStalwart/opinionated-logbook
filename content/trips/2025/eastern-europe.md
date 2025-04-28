@@ -164,3 +164,28 @@ The rest of the route towards Cluj-Napoca was a super nice touge where i was try
 As i expected, the entire day was spent riding and i managed to arrive to a [Hotel Olimp](https://maps.app.goo.gl/MsU52Ckt16FxLVbL6) right before a massive thunderstorm started. For 45 EUR you can have air-conditioned room, and there's connected cafe that serves passable fast food and beer. Getting my laundry washed cost 10 EUR extra.
 
 I went to bed early, knowing from my videogame experience i will wake up well rested.
+
+## 2025.04.24: Cluj-Napoca, Romania
+
+Woke up early and spent the entire day walking the old town. Transylvania is what i expected Italy to be. Hot weather, nice walkable streets, good food, solid museums. Everything is cheaper than it looks. If the rest of my trip is similar cost-wise - i can stretch my budget really far and still have money left for more touring later this year.
+
+I had to compare [Pharmacy Museum](https://maps.app.goo.gl/CpS5upkkd4AfjYr17) with [the one in Kaunas, Lithuania](https://maps.app.goo.gl/RHC4dueNPXKsUXvRA). Romanian seemed to have more "modern" equipment on exhibit, while at the same time preserving aesthetic side of retro medicine. It really made me reconsider how good matte white glass can look if the texture is irregular. The difference between witch doctor and public toilet look is within videogame graphics quality slider range.
+
+Both [Ethnographical Museum of Transylvania](https://maps.app.goo.gl/vdUYs4irLLATSZgv8) and [The National Museum of the History of Transylvania](https://maps.app.goo.gl/PPgT43hmZBundeRb7) were a blur, likely because they cover technology and events i can't put into context. None of my meme and racist prejudice knowledge matches what I've seen there.
+
+[Steampunk Transylvania](https://maps.app.goo.gl/nQ7Kn4AMbifEJn6t9) is a personal art gallery. It's always cool to see obsolete tech and literal garbage be repurposed into art pieces, and when there's so many of them to fill a two-story space it becomes its own form of escapism. Previously I've only seen this kind of scale in [Menų rezidencija “Taškas”](https://maps.app.goo.gl/BqATNQox6MV8ZUGp9) at Visaginas, Lithuania.
+
+Had a lunch at [Shepherd's pub&kitchen](https://maps.app.goo.gl/vtf3pN3tCd63bVr49). It was delicious and affordable, but the place itself was nothing to write about.
+
+[Zoological Museum](https://maps.app.goo.gl/rxQYJ3q5ecQWpeUB8) was just a bunch of taxidermy and frogs in jars, but at the basement they have a secret level with a bunch of snakes and lizards in well built terrariums. And i was lucky enough to visit at the feeding time. It was fun to see reptiles munch mice like it's a big bucket of KFC.
+
+Steampunk museum staff suggested to visit [Joben Experience Bar](https://maps.app.goo.gl/nkTSH9LqB5kuEXaA8) that was decorated by the same artist. The food was good and bartenders were fun to talk to, but i have a hard time recommending it for the interior design.
+
+While walking the city i noticed the brutal efficiency of local police. There's lots of them, they patrol on electric scooters, and looks like they have some kind of phone app that rapid-fires parking tickets. As the result, the usual dark-skinned delivery guys all ride scooters, because if they were to illegally park a car like they do in Latvia, they'd receive a ticket before they load a kebab into their square bag.
+
+I also saw a Dacia Solenza on the street. It brought much joy.
+
+## 2025.04.25
+
+I spent all day on my laptop going through mail, news, personal projects and other _stuff_.
+
