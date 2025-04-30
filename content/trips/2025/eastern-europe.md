@@ -189,3 +189,38 @@ I also saw a Dacia Solenza on the street. It brought much joy.
 
 I spent all day on my laptop going through mail, news, personal projects and other _stuff_.
 
+## 2025.04.26: Cluj-Napoca -> Rădăuți
+
+I wanted to visit a motorcycle museum in Rădăuți, and the road there through the mountains looked like a worthwhile waste of time and fuel in itself.
+
+This was my second day riding in Romania, so i was still learning about local driving culture. It's pretty normal to ride 90km/h in 30km/h zone and be overtaken by a Dacia Logan. As much as Romanians enjoy speeding, they also enjoy slamming on brakes, so attention is required when riding behind a queue of vehicles. The _vehicles_ are of surprising variety here. I saw a horse drawn carriage in front of a Tesla branded workshop. Lots of agricultural equipment as well. Most of the time my underpowered bike kept up with well paced traffic, but sometimes i wish it had 4x the power to safely overtake some stupid BMW X5 driving 30km/h. Please reconsider your life choices when you're being tailgated by a 24hp motorcycle uphill.
+
+A fun highlight of the day was stumbling upon [a horse show](https://ziardebistrita.ro/expozitie-de-cai-la-valea-strajii-pe-26-aprilie/) across the street from [Valea Străjii](https://maps.app.goo.gl/75cXCJcec2UjWQ7o8). I stopped to watch for a bit.
+
+I also must mention [Dionisus Vatra Dornei](https://maps.app.goo.gl/PBdwMBPVkhKem2ZM9) for having one of the best kebab plates i ever tasted.
+
+I reached the underwhelming hotel i booked and went to sleep.
+
+## 2025.04.27: Rădăuți -> Brașov
+
+The game plan was to ride ~400km over the mountains to Brașov.
+
+But first, i had to visit [Expo Moto Bucovina](https://maps.app.goo.gl/ZRUwDaZ4WJVJoEv1A). They state 24/7 opening times, and i thought it could be a regional biker club house, or attached to some 24/7 workshop. When i arrived at 9am - there was no staff inside, but doors were unlocked. I managed to see 2/3 of the exposition when one of the staff arrived. Friendly grandpa didn't speak any English, but was very welcoming.
+
+The variety of exhibits in the museum was excellent, and one of them was a local police bike with a fire extinguisher strapped to a saddlebag. A bartender in Cluj-Napoca mentioned about the stupid law that required motorcyclists to carry a fire extinguisher, and while [it was recently fixed](https://www.femamotorcycling.eu/romania-fireextinguisher/), the police bike had to comply with the law.
+
+When i finished my walkthrough, staff managed to disappear again, so i left 100 PLN in a donation box, had a good coffee and a cinnamon bun at [Krew Coffee drive in](https://maps.app.goo.gl/nkiUVivUtiTvDKBL8) and spent the rest of the day riding to Brașov.
+
+Besides a stop at [Baroc Pub](https://maps.app.goo.gl/oKLuqAi25hTPnvec7) to have pasta bolognese, the rest of the day was just a lot of riding.
+
+## 2025.04.28: Brașov, Romania
+
+I found out the main museum i wanted to visit is closed for renovation, and all the others are closed because it's Monday.
+
+Walked the city towards Tractor District, because obviously i had to see a Tractor District. Had a solid breakfast at [Le Petit Bistro](https://maps.app.goo.gl/UFETmzNBaCW6jPRU8) and ice cream floating in coffee at [Kafea in Park](https://maps.app.goo.gl/rC8WjJTtdJwmrM5z6).
+
+Brașov looked a bit less chill than Cluj-Napoca. It's busier, dirtier, less organized, but still very exotic-looking, with huge green mountains in the background. It kinda reminds me of how Wrocław compares to Kraków.
+
+The hotel staff informed me they don't accept any kinds of digital payment, so i had to remember how to use plastic cards and got some local cash. It's surprisingly good looking.
+
+With the local attractions not really worth extending the stay, i decided to spend the rest of the day on my laptop.
