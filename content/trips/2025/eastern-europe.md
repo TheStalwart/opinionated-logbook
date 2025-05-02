@@ -244,3 +244,21 @@ I found a place called [Noodle Pack](https://maps.app.goo.gl/imv6ULaxbMgw7EdHA) 
 After i had the order placed for the tire, i spent the rest of the day walking the city, attempting to find any open museums. Weirdly, unlike every other country that has museums closed on Mondays, in Bucharest most of them are closed on Wednesdays.
 
 For dinner i visited [Bossman's Burgr Factory Romana](https://maps.app.goo.gl/HszZT9bksu2dFuBw8) and they actually make those impossible to stuff into a face burgers you see on social media. Since i like to eat with a fork, i managed to find a menu item that was a regular size burger cut and spread onto a dish. It was tasty and convenient to eat. They also had their own branded beer and it was delightfully average.
+
+## 2025.05.01
+
+It was a national holiday in Romania and i had no other plans but to walk the city again and try to get into some of the museums that were closed yesterday. I couldn't trust any of the opening times stated on Google Maps and Tripadvisor, but my Crocs were fresh enough i didn't mind to walk a couple extra kilometers.
+
+I'm not a fan of football, but [The Museum of Football](https://maps.app.goo.gl/4D26h6FfgsmqnjaB7) was pretty cool. They had good information in English about exhibits that included historical shoes and balls, but mostly famous players' shirts and other memorabilia.
+
+The next stop was [Museum of Communism in Bucharest](https://maps.app.goo.gl/GTvHA7i641qgAXko7), and the story is slightly different every time, but the end result is as usual. I visited a bunch of communism museums in different countries and all of them just make me love capitalism. I've been telling for a couple years now - don't take money advise from russians and muslims.
+
+I went to [The Museum of Romanian Railroad History](https://maps.app.goo.gl/J7yUnqDqMJtXX1P36) but entrance was cash only and i had no cash.
+
+[The National Military Museum](https://maps.app.goo.gl/u6uEytsQDxGHh44H8) accepted card payments so i went to see a bunch of flags, armor and weapons. The focus of the museum is on pre-XX century mostly, and back then the vehicle of choice was a horse, so i didn't get to see a lot of what i like. Still pretty fun museum, they had horse chainmail on display.
+
+Ordered an average pizza in an average restaurant and walked some more to make conclusions about Bucharest.
+
+Traffic is absolutely fucked 24/7. If you've been to Netherlands and hate bicycles - come to Bucharest and you will hate everything else as well. My bike was parked in the hotel since i arrived to the city because i just don't want to participate in this clusterfuck. This is the first time i see gridlocks in person, i always thought it's some kind of theoretical scary bullshit bicycle enjoyers come up with to demand bike lanes. There's parking on every street, but you can't find any free space. Some streets don't have any bollards and i just walked in the car lanes because traffic doesn't move anyway, but there's more free space and pavement is better. Taxi drivers keep the palm on the horn button unless taking sharp turns. All of this looks like India but car bodywork is not damaged. You have to respect how many dangerous encounters end up with just honks and curses, drivers actually check the blind spots and don't speed. This is probably the only place in Romania where driver's don't speed, because it's fucking impossible to do so.
+
+There's lots of random shoes on the streets as well.
