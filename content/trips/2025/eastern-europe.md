@@ -224,3 +224,23 @@ Brașov looked a bit less chill than Cluj-Napoca. It's busier, dirtier, less org
 The hotel staff informed me they don't accept any kinds of digital payment, so i had to remember how to use plastic cards and got some local cash. It's surprisingly good looking.
 
 With the local attractions not really worth extending the stay, i decided to spend the rest of the day on my laptop.
+
+## 2025.04.29: Bucharest, Romania
+
+The day started with the [Libearty Bear Sanctuary Zarnesti](https://maps.app.goo.gl/NEE2R4JD764c6WqU9). The tour was pretty short but insightful. There were a couple bears and some horses. We were told horses are not a snack for bears. Not worth a major detour, but i did not regret visiting.
+
+The next was [Muzeul Automobilului Românesc](https://maps.app.goo.gl/dM4vqLBUgXhrrQBZ8) and it was cash only. Luckily i had some change after paying for hotel in Brașov. Inside there was lots of memorabilia and contemporary advertisement for Romanian vehicles. In the back yard were vehicles in a very rough state. It's pretty hard to call it a "museum" when I've seen junkyards with cleaner donor cars than these "exhibits". But the variety of vehicles was pretty good and now i have a better reference point for vehicles built by communist Romania.
+
+The rest of the day was spent in traffic. Later in the evening i met a friend who i worked with in Latvia, and we had some fast food and walked the city.
+
+## 2025.04.30
+
+The tires of my bike looked rough, especially the front one, and i called a couple workshops and tire stores to ask if they have any replacements in stock _today_, because the next day was national holiday. The best solution i found was ordering a front tire to be delivered to my hotel in two days, and a workshop nearby told me they can mount it the same day. The rear tire looked like it could handle another 1000km and friends in Bulgaria offered to order a replacement for me to be delivered by the time i reach Blagoevgrad.
+
+In between all the calls to tire shops i tried to find a replacement for one of my power banks that decided it doesn't want to charge my laptop anymore. I found a Samsung bank in the nearby cellphone store, that cost about the same as Chinese equivalents.
+
+I found a place called [Noodle Pack](https://maps.app.goo.gl/imv6ULaxbMgw7EdHA) and they had Buldak noodles with chicken nuggets. Not the best meal i had, but it was fun to try.
+
+After i had the order placed for the tire, i spent the rest of the day walking the city, attempting to find any open museums. Weirdly, unlike every other country that has museums closed on Mondays, in Bucharest most of them are closed on Wednesdays.
+
+For dinner i visited [Bossman's Burgr Factory Romana](https://maps.app.goo.gl/HszZT9bksu2dFuBw8) and they actually make those impossible to stuff into a face burgers you see on social media. Since i like to eat with a fork, i managed to find a menu item that was a regular size burger cut and spread onto a dish. It was tasty and convenient to eat. They also had their own branded beer and it was delightfully average.
