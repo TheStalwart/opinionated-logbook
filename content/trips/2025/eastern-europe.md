@@ -275,3 +275,24 @@ When i arrived to the hotel, i was told the room i booked is not available anymo
 
 The second hotel i booked was smooth sailing, i had a good pizza in [Pizzeria Terra Mia](https://maps.app.goo.gl/73TxCY66LctSjq9t9) and went to sleep before a long day of riding to Bulgaria.
 
+## 2025.05.03 - Bucharest -> Varna
+
+My next stop was Varna, Bulgaria, and there were a couple ways to reach it.
+
+I found [a small ferry](https://maps.app.goo.gl/tNp9xQn4cbHeWETF7) that looked like a fun mini-adventure, but comments on Google Maps revealed it's slow, overpriced, and has hidden fees.
+
+Surprised "Avoid ferries" checkbox actually changes the route between two countries sharing a sizeable land border, i added a checkpoint at Dobrich and went for a few hours of mostly boring highway riding.
+
+The border was a bit more intense than i expected. Bulgaria requires vignettes for most highways, so i assume they're just reminding tourists to buy one. Motorcycles don't need a vignette though.
+
+I stopped for a very average sandwich and a drink, and proceeded to ride some more boring "highways" until i reached [Dobrich Zoo](https://maps.app.goo.gl/JNUE1U97sN4kMBmk8). It's not exciting, definitely not worth a detour, but as a checkpoint on the long way between two big cities - quite enjoyable. They had bunnies, horses, llamas, some birds and few other farm animals. Entry was cash only.
+
+On the way to my hotel i saw a turtle trying to cross the road. While i was getting off my bike to take a picture it ran away back into tall grass.
+
+Originally, i was going to stay for a night in Dobrich, but i had enough daylight left to reach Varna the same day, and it seemed like a good idea to start the day in a bigger city with more POIs.
+
+I checked into [Campus 90](https://maps.app.goo.gl/wqyuxKQ1skPcSAHK7) hotel for 50 EUR/night, which is more than i wanted to pay, but it had all the features i wanted and was close to the city center.
+
+I was recommended the [Doner "Osman Baba"](https://maps.app.goo.gl/AGRsGd8FBrRBaPx37) place, but while in queue i saw seagulls steal a kebab from a customer. There was no indoor seating, and i was not willing to fight the birds after a long day of riding.
+
+I went to [Rosa D'Oro](https://maps.app.goo.gl/a8ZQvQ51AppDWFCR9). They had no birds, but also no Wi-Fi, but pizza was good.
