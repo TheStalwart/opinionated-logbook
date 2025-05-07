@@ -262,3 +262,16 @@ Ordered an average pizza in an average restaurant and walked some more to make c
 Traffic is absolutely fucked 24/7. If you've been to Netherlands and hate bicycles - come to Bucharest and you will hate everything else as well. My bike was parked in the hotel since i arrived to the city because i just don't want to participate in this clusterfuck. This is the first time i see gridlocks in person, i always thought it's some kind of theoretical scary bullshit bicycle enjoyers come up with to demand bike lanes. There's parking on every street, but you can't find any free space. Some streets don't have any bollards and i just walked in the car lanes because traffic doesn't move anyway, but there's more free space and pavement is better. Taxi drivers keep the palm on the horn button unless taking sharp turns. All of this looks like India but car bodywork is not damaged. You have to respect how many dangerous encounters end up with just honks and curses, drivers actually check the blind spots and don't speed. This is probably the only place in Romania where driver's don't speed, because it's fucking impossible to do so.
 
 There's lots of random shoes on the streets as well.
+
+## 2025.05.02 - New front tire
+
+I packed my bags and spent most of the day in hotel lobby. First - waiting for new tire to be delivered, then - waiting for my workshop appointment time.
+
+I received the new front tire i ordered, and booked the workshop to get the new rubber on. [Grant Racing Garage](https://maps.app.goo.gl/1GLn4Yyiq5bJyGov7) changed and balanced the front tire, and also suggested i should change my chain and sprockets ASAP. Overall good experience, highly recommended workshop.
+
+The only time slot available was for late afternoon, that meant I'm staying in Bucharest for one more night, but i decided to book a different hotel further away from the city center.
+
+When i arrived to the hotel, i was told the room i booked is not available anymore and it was a listing bug by Booking.com. As I'm writing this report a week later, i still haven't got my money back, and the host of the hotel doesn't even see my reservation on his host app. Not sure how long it will take, hopefully i don't have to file a chargeback with my credit card issuer.
+
+The second hotel i booked was smooth sailing, i had a good pizza in [Pizzeria Terra Mia](https://maps.app.goo.gl/73TxCY66LctSjq9t9) and went to sleep before a long day of riding to Bulgaria.
+
