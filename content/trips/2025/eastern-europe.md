@@ -296,3 +296,23 @@ I checked into [Campus 90](https://maps.app.goo.gl/wqyuxKQ1skPcSAHK7) hotel for 
 I was recommended the [Doner "Osman Baba"](https://maps.app.goo.gl/AGRsGd8FBrRBaPx37) place, but while in queue i saw seagulls steal a kebab from a customer. There was no indoor seating, and i was not willing to fight the birds after a long day of riding.
 
 I went to [Rosa D'Oro](https://maps.app.goo.gl/a8ZQvQ51AppDWFCR9). They had no birds, but also no Wi-Fi, but pizza was good.
+
+## 2025.05.04
+
+I started the day by pulling a whole dead bee out of my helmet's ventilation channel. I need to figure out how to disassemble the ventilation to clean it properly after the trip.
+
+I discovered Uber-like taxi apps are banned in Bulgaria, because legacy taxi companies were complaining. Instead of wasting my time figuring out which taxi companies are legitimate and not overpriced, i _walked_ to my destination.
+
+Varna looks a lot like Liepāja - there are newly developed buildings and infrastructure, but still lots of legacy and even outright slums, and they're often on the same street.
+
+[Retro Museum](https://maps.app.goo.gl/9qMR9xDyyPf3BBD86) was located _inside_ a shopping mall, and is the most elaborate commie vibe museum i visited so far. All vehicles are in showroom condition, but memorabilia and everyday items of their corresponding time period go way beyond being set pieces. There's a collection of soviet vacuum cleaners that looks like a completed Pokédex, and also other kinds of home appliances, electronics, toys, and even [Pravetz](https://en.wikipedia.org/wiki/Pravetz_(computer)) computers made in Bulgaria. "Car tuning parts" on display were also notable, as very few museums display cars beyond their stock form.
+
+After a brief stop at mall's food court i walked in the wrong direction for a couple kilometers because Apple Maps. Saw more of the same - a wild mix of new developments and classic eastern european vibes.
+
+A pretty cool feature of Bulgarian urban infrastructure is arrows on pedestrian crossings suggesting which way traffic may come from. Unfortunately, i found multiple places where these arrows were drawn incorrectly. Unreliable specific information is usually worse than having no information at all.
+
+The rest of the day was derailed by family members trying to trick me into spending money on things i don't need.
+
+In the evening i decided to ride my bike to the seaside. I don't like swimming, but i wanted to see the Black sea before taking a route away from it. Surprisingly, there's a road alongside shore, and even a small parking lot. I took a few pictures, smelled the sea that is a bit different from Baltic, and went back to the hotel.
+
+Parked my bike, walked to [Fratelli Food & Bar](https://maps.app.goo.gl/42EKcBuXZ8hpiDwe9), then had another 40 minute call before i could order my food. The pizza was good, and Birra Moretti was as usual.
