@@ -316,3 +316,13 @@ The rest of the day was derailed by family members trying to trick me into spend
 In the evening i decided to ride my bike to the seaside. I don't like swimming, but i wanted to see the Black sea before taking a route away from it. Surprisingly, there's a road alongside shore, and even a small parking lot. I took a few pictures, smelled the sea that is a bit different from Baltic, and went back to the hotel.
 
 Parked my bike, walked to [Fratelli Food & Bar](https://maps.app.goo.gl/42EKcBuXZ8hpiDwe9), then had another 40 minute call before i could order my food. The pizza was good, and Birra Moretti was as usual.
+
+## 2025.05.05 - Varna -> Veliko Tarnovo
+
+The day started with a headache, but i needed to go to Veliko Tarnovo.
+
+A few hours later i discovered the reason of my headache - the weather would flip between rain and heat every 15 minutes. I stopped at the gas station to buy a waffle and a can of Monster Energy, and it started and stopped raining _while i was having a drink_.
+
+I arrived to [Family Hotel Silvestar](https://maps.app.goo.gl/UMVAoRwaVZb7AzsM8) late afternoon and still having mild headache. I went for a walk, visited [Mini-Bulgaria Park](https://maps.app.goo.gl/jstBgWKZNffbatgy5) and got wet, then dry, in the process.
+
+The restaurant i was going to visit was closed, so i walked into [Kira'sushi](https://maps.app.goo.gl/qBHDGn91phhJwikm6) and ordered a bowl of rice and chicken. They had nice artwork on the walls.
