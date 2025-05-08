@@ -326,3 +326,15 @@ A few hours later i discovered the reason of my headache - the weather would fli
 I arrived to [Family Hotel Silvestar](https://maps.app.goo.gl/UMVAoRwaVZb7AzsM8) late afternoon and still having mild headache. I went for a walk, visited [Mini-Bulgaria Park](https://maps.app.goo.gl/jstBgWKZNffbatgy5) and got wet, then dry, in the process.
 
 The restaurant i was going to visit was closed, so i walked into [Kira'sushi](https://maps.app.goo.gl/qBHDGn91phhJwikm6) and ordered a bowl of rice and chicken. They had nice artwork on the walls.
+
+## 2025.05.06 - Veliko Tarnovo
+
+I started the day waking into [Кафе Бар "РЕТРО"](https://maps.app.goo.gl/FQAb6draqwU9L2Gh9) and opening the laptop with furry porn still open. I didn't have a lot of specific plans for the city so i wrote some of this report and planned the following week while having coffee and croissants. I needed to be in Blagoevgrad for the upcoming weekend to meet up with a friend and get my bike serviced, and there were a couple POIs along the way.
+
+[Prison museum](https://maps.app.goo.gl/ZxumTXwSRmy1EP5n6) was cash-only so i skipped it and walked to the [Tsarevets Fortress](https://maps.app.goo.gl/ybR5mWSHszaoSEw38). It was pretty fun and a good workout. On the top of the fortress there was a church, with a dog sleeping in its shadow.
+
+After burning some calories at the fortress i was looking to replace them. Google Maps review for [Малкия Интер](https://maps.app.goo.gl/gtUBMC2oQcU6mEpn7) stated they have a cat. I had to verify. I verified. They do have a cat. Pasta was pretty good.
+
+With no plan for the rest of the day i just walked the city and enjoyed _the variety_. It's a pretty fun city to explore with lots of legacy. There are narrow historical streets that look almost stereotypically Italian, there are commie era districts with TV and early Internet wiring stretched between the buildings, and some modern looking buildings that didn't look out of place in a semi-medieval city. Not dropping a motorcycle while navigating this city is definitely a challenge. This was one of the few cities i enjoyed looking at architecture.
+
+I ended the day making sure furry porn is closed, then having a few beers in the same cafe i started it. I planned a good route for the next day and got wet again on the way back to the hotel.
