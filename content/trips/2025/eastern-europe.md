@@ -388,3 +388,9 @@ I decided to visit the [local Zoo](https://maps.app.goo.gl/RqdK57XymxcnKgJk7). T
 The rest of the afternoon was a chill lap around the city, through [gypsy slums](https://maps.app.goo.gl/F7rnSvRrnkBycjzv6) , industrial area, and then back towards the hotel.
 
 After my local friend got hit with a forklift at work, we bought some beers, ordered a pizza and discussed motorcycles until his girlfriend got angry.
+
+## 2025.05.10
+
+I had a chance to visit [a retro car meetup](https://www.struma.com/obshtestvo/parad-na-retro-avtomobili-v-blagoevgrad_231675/). This is Balkans, so half of the cars were old Mercedes. The other half was also German, but from West Germany. Very few French, Italian and Japanese cars. The most interesting exhibit was LPG-converted Honda Gold Wing GL1200. The gas tank was hanging off a top case and there was lots of extra stuff around the engine to accommodate LPG injection. Usually these kinds of projects are very well built to show off craftsmanship of a particular LPG conversion workshop, but this bike looked like someone's attempt to save money, which was highly questionable.
+
+I bought a new rear tire, chain and sprockets for my Himalayan, and the rest of the day was wasted on food, drinks, small talk, and trying to install a custom ringtone on iPhone 15 Pro (we failed).
