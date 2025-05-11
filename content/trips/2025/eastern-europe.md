@@ -213,6 +213,8 @@ When i finished my walkthrough, staff managed to disappear again, so i left 100 
 
 Besides a stop at [Baroc Pub](https://maps.app.goo.gl/oKLuqAi25hTPnvec7) to have pasta bolognese, the rest of the day was just a lot of riding.
 
+{{< instagram DI8rSnNifqQ >}}
+
 ## 2025.04.28: Brașov, Romania
 
 I found out the main museum i wanted to visit is closed for renovation, and all the others are closed because it's Monday.
@@ -314,6 +316,8 @@ A pretty cool feature of Bulgarian urban infrastructure is arrows on pedestrian 
 The rest of the day was derailed by family members trying to trick me into spending money on things i don't need.
 
 In the evening i decided to ride my bike to the seaside. I don't like swimming, but i wanted to see the Black sea before taking a route away from it. Surprisingly, there's a road alongside shore, and even a small parking lot. I took a few pictures, smelled the sea that is a bit different from Baltic, and went back to the hotel.
+
+{{< instagram DJPPnpHi9dK >}}
 
 Parked my bike, walked to [Fratelli Food & Bar](https://maps.app.goo.gl/42EKcBuXZ8hpiDwe9), then had another 40 minute call before i could order my food. The pizza was good, and Birra Moretti was as usual.
 
