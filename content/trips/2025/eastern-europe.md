@@ -342,3 +342,35 @@ After burning some calories at the fortress i was looking to replace them. Googl
 With no plan for the rest of the day i just walked the city and enjoyed _the variety_. It's a pretty fun city to explore with lots of legacy. There are narrow historical streets that look almost stereotypically Italian, there are commie era districts with TV and early Internet wiring stretched between the buildings, and some modern looking buildings that didn't look out of place in a semi-medieval city. Not dropping a motorcycle while navigating this city is definitely a challenge. This was one of the few cities i enjoyed looking at architecture.
 
 I ended the day making sure furry porn is closed, then having a few beers in the same cafe i started it. I planned a good route for the next day and got wet again on the way back to the hotel.
+
+## 2025.05.07: Veliko Tarnovo -> Plovdiv
+
+I started the day by packing my bags and walking out of the hotel with the key left inside, locking myself out of half my shit. Staff did not answer my calls but 10 minutes later another traveler walked out and i managed to leave early, as i had planned.
+
+I had [an excellent route](https://maps.app.goo.gl/M5Z9n6vbNn3gyNfA7 ) planned, but weather forecast suggested there might be a heavy rain later that day. I was rushing towards Plovdiv without breakfast and pit stops, enjoying the curvy roads and adventure bike suspension. I cannot honestly recommend this particular special stage for road bikes though, as pavement was all patchwork and occasional sand/gravel spills.
+
+As i was approaching [Museum of Aviation](https://maps.app.goo.gl/rYc6mbKfEY6d6ZQL8) the skies got darker and i saw lightning up in the mountains. I parked my bike near museum entrance and was immediately drenched to (and including) my underwear. I hid under an awning for a while until skies cleared up, booked a hotel just a few kilometers away and sprinted to it through a flooded road. Luckily, i'm not on my Burgman this time, so instead of destroying my wheel bearings i was just getting even more wet.
+
+I checked into [Ubis Hotel](https://maps.app.goo.gl/MqdzMcmv44buDW1q8) that had power outage due to thunderstorm. I was told it's gonna get fixed in a couple hours, and i had 3x power banks charged, so i took a shower, changed into dry clothes and spent some time writing this report.
+
+Later that day weather got really nice, and [Автомузей Марково](https://maps.app.goo.gl/ALAsocY2341DyQKYA) had generous opening hours, so i hopped on my bike and went for a chill cruise. The museum was really good. Cars were in excellent condition and had information tablets. The variety was good, i saw some cars and bikes made in Bulgaria (both original and licensed), as well as globally significant historical vehicles.
+
+For a dinner i visited [Pizza Lab](https://plovdivplaza.bg/plovdiv-plaza/pizza-lab/) in [Plovdiv Plaza Mall](https://maps.app.goo.gl/f5KBWEpJA8ypmEW86). It's like Subway but for pizzas instead of sandwiches. Every meal is built to order, you choose your own toppings from a sizeable assortment.
+
+It was an exhausting day and the hotel did not have any ergonomic office space, so i went to bed early.
+
+## 2025.05.08: Plovdiv -> Blagoevgrad
+
+The day started early, i was shaping a route towards Blagoevgrad on the couch near reception, and was greeted by an old contractor working on conference hall of the hotel. He told me Tallinn is the capital city of Lithuania and Putin is fighting nazis in Ukraine. That confirmed my idea to not stay for another night in Plovdiv. I packed my bags and departed.
+
+Went back to [Museum of Aviation](https://maps.app.goo.gl/rYc6mbKfEY6d6ZQL8) and was told it's cash only. I had no cash.
+
+I discovered the geo coordinates on [Cars of Socialism Museum, Peshtera | Automuseums.info](https://automuseums.info/bulgaria/cars-socialism-museum-peshtera) were wrong and the actual location of the museum makes me choose between a really fun looking curvy route and some old common cars in a crowded garage. I submitted a report to the website and decided to skip the museum. If the coordinates are not fixed on the upstream website by the time I'm back to Latvia, i intend to implement a patch overlay in my [Automuseums-gpx](https://github.com/TheStalwart/Automuseums-gpx) project.
+
+After rotting in Plovdiv's morning traffic for a while, the rest of the day was just a lot of excellent curvy mountain roads, this time perfectly rideable even on sportbikes, so i highly suggest taking this specific route instead of the highways.
+
+{{< instagram DJY4KWKCn2_ >}}
+
+I booked a room in [Hotel Chamishki](https://maps.app.goo.gl/Yd2gai1RzXiznKME6). For 30 EUR/night i had a room with air conditioning, balcony, desk and a big TV above it. They also had a lockable back yard to park my bike safely. Highly recommended hotel, but cash only.
+
+I walked to [#meatlove by Kebap13](https://maps.app.goo.gl/5cMeSC9iRttwVA728) and met a [Warframe](https://www.warframe.com/) clan mate i played with for years, but never met IRL before. We had pretty good kebab and even better chat.
