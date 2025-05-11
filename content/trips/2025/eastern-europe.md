@@ -374,3 +374,17 @@ After rotting in Plovdiv's morning traffic for a while, the rest of the day was 
 I booked a room in [Hotel Chamishki](https://maps.app.goo.gl/Yd2gai1RzXiznKME6). For 30 EUR/night i had a room with air conditioning, balcony, desk and a big TV above it. They also had a lockable back yard to park my bike safely. Highly recommended hotel, but cash only.
 
 I walked to [#meatlove by Kebap13](https://maps.app.goo.gl/5cMeSC9iRttwVA728) and met a [Warframe](https://www.warframe.com/) clan mate i played with for years, but never met IRL before. We had pretty good kebab and even better chat.
+
+## 2025.05.09
+
+I woke up to a push notification from Slack about 64696 unread messages. Bruh, I'm unemployed.
+
+I needed cash to pay for hotel and motorcycle parts, so i walked towards a street that had a couple banks.
+
+After a solid breakfast at [Апетито, дюнер и бургер](https://maps.app.goo.gl/A6fvZEYA8WatEYYC7) i tried 3 different banks' ATMs until i got cash from [Fibank](https://www.fibank.bg/en), and not just an error message. Turns out not every bank here in Bulgaria allows to withdraw cash from foreign credit cards. To celebrate a wad of monopoly money i acquired, i walked into [Espresso Cultura](https://maps.app.goo.gl/s79tS6otjyQx1g1S9). I would suggest this place just for the vibe if you're tired of fancy hipster coffee shops. This is complete opposite. No MacBooks in sight, no hair products, no jewelry, just a bunch of middle aged dudes enjoying morning coffee and small talk. The coffee was cheap and good. Cash only, but this time it was not an issue.
+
+I decided to visit the [local Zoo](https://maps.app.goo.gl/RqdK57XymxcnKgJk7). The entrance was free, i assume it was sponsored by monkeys, because one of them started masturbating while i was walking by their enclosure.
+
+The rest of the afternoon was a chill lap around the city, through [gypsy slums](https://maps.app.goo.gl/F7rnSvRrnkBycjzv6) , industrial area, and then back towards the hotel.
+
+After my local friend got hit with a forklift at work, we bought some beers, ordered a pizza and discussed motorcycles until his girlfriend got angry.
