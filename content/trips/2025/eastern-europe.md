@@ -265,7 +265,7 @@ Traffic is absolutely fucked 24/7. If you've been to Netherlands and hate bicycl
 
 There's lots of random shoes on the streets as well.
 
-## 2025.05.02 - New front tire
+## 2025.05.02: New front tire
 
 I packed my bags and spent most of the day in hotel lobby. First - waiting for new tire to be delivered, then - waiting for my workshop appointment time.
 
@@ -277,7 +277,7 @@ When i arrived to the hotel, i was told the room i booked is not available anymo
 
 The second hotel i booked was smooth sailing, i had a good pizza in [Pizzeria Terra Mia](https://maps.app.goo.gl/73TxCY66LctSjq9t9) and went to sleep before a long day of riding to Bulgaria.
 
-## 2025.05.03 - Bucharest -> Varna
+## 2025.05.03: Bucharest -> Varna
 
 My next stop was Varna, Bulgaria, and there were a couple ways to reach it.
 
@@ -321,7 +321,7 @@ In the evening i decided to ride my bike to the seaside. I don't like swimming, 
 
 Parked my bike, walked to [Fratelli Food & Bar](https://maps.app.goo.gl/42EKcBuXZ8hpiDwe9), then had another 40 minute call before i could order my food. The pizza was good, and Birra Moretti was as usual.
 
-## 2025.05.05 - Varna -> Veliko Tarnovo
+## 2025.05.05: Varna -> Veliko Tarnovo
 
 The day started with a headache, but i needed to go to Veliko Tarnovo.
 
@@ -331,7 +331,7 @@ I arrived to [Family Hotel Silvestar](https://maps.app.goo.gl/UMVAoRwaVZb7AzsM8)
 
 The restaurant i was going to visit was closed, so i walked into [Kira'sushi](https://maps.app.goo.gl/qBHDGn91phhJwikm6) and ordered a bowl of rice and chicken. They had nice artwork on the walls.
 
-## 2025.05.06 - Veliko Tarnovo
+## 2025.05.06: Veliko Tarnovo
 
 I started the day waking into [Кафе Бар "РЕТРО"](https://maps.app.goo.gl/FQAb6draqwU9L2Gh9) and opening the laptop with furry porn still open. I didn't have a lot of specific plans for the city so i wrote some of this report and planned the following week while having coffee and croissants. I needed to be in Blagoevgrad for the upcoming weekend to meet up with a friend and get my bike serviced, and there were a couple POIs along the way.
 
