@@ -409,7 +409,7 @@ Invited my local friend for a pizza and beer, found out his girlfriend banned hi
 
 It was a bit suspicious the moto workshop i was booked for did not answer the phone all day.
 
-## 2025.05.12: Monday
+## 2025.05.12: Blagoevgrad -> Sofia
 
 The workshop did not answer the phone because the guy crashed his bike in the mountains and is now in hospital or something. We needed to find another place to service my bike. The organizational inconvenience was whether i should extend my stay in the hotel, or go to Sofia for more opportunities to find a workshop.
 
