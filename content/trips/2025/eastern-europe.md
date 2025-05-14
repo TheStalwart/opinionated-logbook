@@ -394,3 +394,47 @@ After my local friend got hit with a forklift at work, we bought some beers, ord
 I had a chance to visit [a retro car meetup](https://www.struma.com/obshtestvo/parad-na-retro-avtomobili-v-blagoevgrad_231675/). This is Balkans, so half of the cars were old Mercedes. The other half was also German, but from West Germany. Very few French, Italian and Japanese cars. The most interesting exhibit was LPG-converted Honda Gold Wing GL1200. The gas tank was hanging off a top case and there was lots of extra stuff around the engine to accommodate LPG injection. Usually these kinds of projects are very well built to show off craftsmanship of a particular LPG conversion workshop, but this bike looked like someone's attempt to save money, which was highly questionable.
 
 I bought a new rear tire, chain and sprockets for my Himalayan, and the rest of the day was wasted on food, drinks, small talk, and trying to install a custom ringtone on iPhone 15 Pro (we failed).
+
+## 2025.05.11
+
+Woke up a bit cranky and immediately got worse after discovering Wi-Fi doesn't work, and trying out the new random shower gel i bought because Old Spice was out of stock.
+
+Found and power cycled the hotel's Wi-Fi router. It fixed the issue.
+
+Went for a walk to buy Monster Juiced and proper genuine Old Spice. Managed to find Monster Khaotic and bergamot flavored Old Spice in nearby stores. Walked back to the hotel to reshower.
+
+The day was spent on a laptop writing this report, watching YouTube and researching travel destinations.
+
+Invited my local friend for a pizza and beer, found out his girlfriend banned him from socializing with me. Well, that's not the first time, and definitely not the last time. Had pizza and beer for a dinner, solo.
+
+It was a bit suspicious the moto workshop i was booked for did not answer the phone all day.
+
+## 2025.05.12: Monday
+
+The workshop did not answer the phone because the guy crashed his bike in the mountains and is now in hospital or something. We needed to find another place to service my bike. The organizational inconvenience was whether i should extend my stay in the hotel, or go to Sofia for more opportunities to find a workshop.
+
+"Official" Royal Enfield dealer in Sofia could take me for tomorrow morning, so i needed to pack my bags and ride to Sofia.
+
+I routed to avoid highways and had a pretty good run through twisties.
+
+After checking into [Victory Apartments](https://maps.app.goo.gl/WbGqYbkbnB8m39Wg6) i decided to try my luck and drop off the bike for service today, instead of dealing with morning rush hour traffic tomorrow. Traffic in Sofia didn't look as bad as Bucharest (and it isn't), but I'm not a morning person. I left my top case in the hotel, strapped the tire, chain and sprockets directly to the rack (yay [Voile Straps](https://www.voile.com/voile-straps.html)!) and went for a short ride, leaving more gear shifter marks on my left Croc.
+
+[Royal Enfield Bulgaria](https://maps.app.goo.gl/1jqSrm2rEXy94a1d9) was a pretty small semi-official dealership, but they agreed to do the job i needed in the timeframe that doesn't interfere with my travel schedule. After some yapping with staff and checking out new Himalayan 450, I left my bike and walked towards a city center.
+
+I had a lunch at [Los Muchachos](https://maps.app.goo.gl/dXj3ZH3zSXkxg97Q6), then walked to [Retro Gaming Bar](https://maps.app.goo.gl/fa1tNWtpeRnuj3vG9). Behind the bar was the owner, so up until he closed the venue we had excellent deep chat about retrogaming, community building and event organization. The bar is interesting for the technical implementation of gaming setups. Yes, they're emulated, but the ROMs are dumped from owner's private collection, and network is set up to prevent running more than one copy of the game at the same time - to make it 100% legal (confirmed with the local IP lawyers).
+
+I had 2% battery left in my phone when i got back to the hotel, my body felt the same, so i went to bed early.
+
+## 2025.05.13
+
+Spent the entire day walking around Sofia. I don't track my walks, but maybe i should. In ~20km i saw quite a few interesting districts.
+
+Finding a self-service and same-day laundry service in Sofia took me a while. It seems like these kinds of businesses are not in demand in less "touristy" cities. Dropped a bag of stinky shirts at [Дон Арт](https://maps.app.goo.gl/XD2LrcjtwipEk5zFA) and walked to museums.
+
+[National Polytechnic Museum](https://maps.app.goo.gl/gQkGiw9XnpmtRe787) was small and not worth a detour.
+
+Automuseums.info listed Euratek Showroom for having a small museum, but stated wrong location. Staff told me the correct address, and it was on the other end of the city.
+
+[MOTO-PFOHE](https://maps.app.goo.gl/7b5S98XzcxmidW7z7) had two Ford Model A cars and one mint condition Ford Scorpio. Entry was free, but not worth a detour in my opinion.
+
+By that time it was already late afternoon, i walked back to city center, picked up my bag of socks that were not stinky anymore, and went to the hotel. After taking shower i had just enough energy left to visit [KANAAL](https://maps.app.goo.gl/FsRqHGATyq22Smt88) for some local lager and loaded fries.
