@@ -438,3 +438,55 @@ Automuseums.info listed Euratek Showroom for having a small museum, but stated w
 [MOTO-PFOHE](https://maps.app.goo.gl/7b5S98XzcxmidW7z7) had two Ford Model A cars and one mint condition Ford Scorpio. Entry was free, but not worth a detour in my opinion.
 
 By that time it was already late afternoon, i walked back to city center, picked up my bag of socks that were not stinky anymore, and went to the hotel. After taking shower i had just enough energy left to visit [KANAAL](https://maps.app.goo.gl/FsRqHGATyq22Smt88) for some local lager and loaded fries.
+
+## 2025.05.14
+
+Went for a breakfast to [Пекарна Бистро Хлябът на Нена](https://maps.app.goo.gl/h2z6a7qRj5djgZeb7). They had coffee, croissants, Wi-Fi, 220V outlets, and white glossy desks incompatible with my Razer mouse. Spent some time there writing this report, then went for a walk to Royal Enfield dealership to pick up my bike.
+
+While i was rolling the bike out of the dealership i managed to break the mirror, so the final bill was 30 EUR more than i was told on the phone. I got new rear tire, chain and sprockets, and also had engine oil and filter replaced. The bike was set to be good for another 5000km, so riding back to Latvia + maybe a trip to Estonia and Finland I'm considering, before me, or the next owner, need to do anything besides refueling.
+
+I checked the remaining POIs on my list and decided to visit two more museums before going back to the hotel.
+
+The closest to the dealership was [National Museum of Military History](https://maps.app.goo.gl/xHtLFJQ18TmDaQNd6). As I'm writing this report i found out there was also an indoors part of the museum i didn't visit, but the park with historical military vehicles was pretty cool, considering free entrance and free parking.
+
+Yesterday i went to the wrong Škoda dealership because Automuseums.info had the wrong address and geolocation, today i had [the correct address](https://maps.app.goo.gl/UU6CkBGgNN1TLxs7A), and the museum was actually very worth visiting. Besides commie cars they had a sizeable collection of older Škoda models, and also some "modern classics" like mint condition pre-facelift Fiat Multipla. The entrance is free.
+
+I went back to the hotel, parked my bike and walked to [SkaraBar](https://maps.app.goo.gl/KjtEB4mxhTHUKusd6) for dinner. The food was pretty good and the interior design was cool.
+
+This was my last evening in Sofia, and i sat down to plan the next destination. I had less than 3 weeks left, considering it takes 2-3 days to cross Poland and Lithuania. I needed to plan the route around western half of Slovakia and Hungary to understand, if i have time left for Serbia.
+
+## 2025.05.15: Sofia -> Belgrade
+
+It was a big challenge to find POIs to visit in Serbia outside of Belgrade, and i failed. I ballparked the route with a checkpoint in Niš and expected to spend all day in the saddle.
+
+I did not know what to expect at the border control, considering my cellphone carrier and insurance company consider it basically a part of EU already. I rolled up to the Bulgarian part, some chill staff _asked me_ about the contents of my top case and _believed me_ when i told it's just a personal laptop and extra clothes. Serbian parts took a closer look at my documents and stamped my brand new passport. I spent like 10 minutes crossing the border total, and 5 of them was getting on and off the bike.
+
+I don't know what Serbian highways look like, as i set my Waze to avoid them, but rural roads are not for beginner motorcyclists. It's a major skill and maturity check. Pavement is pretty good most of the time, but there are random spills of sand and gravel to look for and dodge. Roads are very narrow, and most of the corners are blind. You will never have enough power and confidence to safely overtake, it's all about reading corners and terrain. I'd guess tractors here are red to make it easier to wash off motorcyclists. On a slower bike - just stay in a queue of traffic and enjoy the scenery like i did. It's a bit worse than Bulgaria and Romania, but still a great view, unlike Poland. Honda, please add a radar cruise control for 2026 Africa Twin!
+
+On the route to Belgrade, the only POI worth visiting for me seemed to be [Science and Technology Park Niš](https://maps.app.goo.gl/MZrEb75N8YxqCmZm6). The "museum" was just a small room with some appliances and computers made in Yugoslavia, but entrance and parking was free, so why not.
+
+I stopped at the [Delta Planet](https://maps.app.goo.gl/6Jkxa4rTBjqJuopW8) for a coffee, parked my bike in the shade near the coffee shop terrace, and as i was about to leave, security and management came to complain about my choice of parking spot. Well, you marked a separate location for bicycles, but no designated spot for motorcycles. I'm not saying I'm entitled to park wherever i like, but IKEA and some other shopping chains make their policy clear and easy to follow. I also noticed that stickers with my phone number on the bike probably earned me some respect points, the management and security were pointing at them as i was walking out of the coffee shop. In short, don't be a dick, and foreign numberplates will get you out trouble with a polite declaration of bad behavior.
+
+I departed out of Sofia early, and Serbia was in a different timezone. That meant i still had enough daylight to reach Belgrade if i don't waste time trying to find the perfect hotel, but book whatever is on the periphery for one night. I booked a room in [Hotel Slodes](https://maps.app.goo.gl/PDbrGV7cTHqi8cse6) and went for a couple more hours of chill riding, averaging 3 liters of fuel per 100km.
+
+As i was checking into the hotel, it went dark and started raining. The on-site bar was too loud, so i walked across the parking lot to [Restaurant Чачанин](https://maps.app.goo.gl/659rSVGhbgNkRaj68). At first i was about to complain my chicken fillet was served without any sauce, but then i tasted it and STFU because it was really well seasoned. Had proper restaurant-grade meal for the price of McDonalds and went to rest.
+
+## 2025.05.16
+
+I booked my next hotel that was cheap and within city center, but was cash-only. Went to an ATM to withdraw 5th kind of monopoly money to add to my diverse and inclusive secondary wallet.
+
+A few months ago i was sent [an IG reel about a food spot](https://www.instagram.com/reel/DIwrkmLI4w2/). I had the location added to my travel planner, and today was the perfect opportunity to visit it for a breakfast. It was located in suburbs of Serbia that looked like a Balkan version of San Francisco. Area was so stereotypically eastern-european that Wolt couriers with their blue bags looked like a silly mod in a videogame. [Picerija Kod Naše Babe](https://maps.app.goo.gl/2wEBiWs6oksYFDUM6) looked closed, but as i was double-checking the address the grandma walked out, greeted me, and told me to wait 5 minutes. I ordered ham pancakes and declined an offer of Rakia. While being the complete opposite of last nights' meal at Чачанин, this was the best breakfast i had in a long time. I could barely communicate with the hosts, resorting to Google Translate app, but i would definitely visit them again in the future. I paid 2x of the asked price and it was still cheaper than anywhere else.
+
+It was still way too early to check into the next hotel, so i looked at the POIs i marked on my map and rode to [Museum of Yugoslavia](https://maps.app.goo.gl/7Dzkpmxoyf8E7Yxr7). Unlike some of my Russian clan mates who full-time celebrate every possible way to hate NATO, i did not know anything about Balkan geopolitics. I read about late 19th and early 20th century history of Yugoslavia thinking "this doesn't seem like a good idea", and then the next exhibit was a photo of the leader of Yugoslavia with Adolf Hitler. And then they had a commie phase that may be slightly more free market biased than USSR, but still pretty bad from my own political/economical view. I left the museum hoping humanity will at some point gather enough data to abandon the idea of grouping barely related nations into a single political entities, and the current empires cosplaying as countries will be split into separate republics they occupied.
+
+I checked into [Hotel Duga](https://maps.app.goo.gl/Gd961VV1DdTswUEU6). It's cash only, but has proper private parking behind closed gate, perfect to leave my bike and walk the Belgrade for a few days.
+
+[Museum of Science & Technology](https://maps.app.goo.gl/vtCYrpARKXhMpP8w7) was excellent. It looks small, but is very well designed with diverse exhibits laid out in chronological order and information tablets in english. Inexpensive and super enjoyable. Computer section was excellent, exhibiting early calculation machines, mainframes and home computers. Cash only though.
+
+Walked into [Agi pasta away](https://maps.app.goo.gl/H7UZ3Rjb1qcvwUF1A). The portion size was smaller than I expected but tasty.
+
+Visited [Postal Museum](https://maps.app.goo.gl/oASr55gGESNme3ibA). Entrance was free, exhibits were pretty interesting. Nothing to complain about.
+
+For the dinner i randomly walked into [Matto Napoletano](https://maps.app.goo.gl/Api6bH2fMKkkR7s28). The venue is very small with smoking allowed, and the pizza was average at best. Disappointing experience. Indoor smoking is something to be aware of in Serbia - many venues allow it.
+
+I was pretty tired to do anything productive, so had another beer and went to sleep.
