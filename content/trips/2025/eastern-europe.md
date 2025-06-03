@@ -490,3 +490,155 @@ Visited [Postal Museum](https://maps.app.goo.gl/oASr55gGESNme3ibA). Entrance was
 For the dinner i randomly walked into [Matto Napoletano](https://maps.app.goo.gl/Api6bH2fMKkkR7s28). The venue is very small with smoking allowed, and the pizza was average at best. Disappointing experience. Indoor smoking is something to be aware of in Serbia - many venues allow it.
 
 I was pretty tired to do anything productive, so had another beer and went to sleep.
+
+## 2025.05.17
+
+Woke up to no Wi-Fi. Turns out the entire hotel was out of power. Took a shower and went to the nearest coffee shop.
+
+Spent a couple hours in [Coffeedream](https://maps.app.goo.gl/VFW9dp7MXsgttp2g7). The entire cafe is a smoking area, but coffee, cake, Wi-Fi and power outlets were ok. Wrote this report, researched nearby POIs, and walked out with all my devices and power banks charged.
+
+While walking to the next location, had some time to review local urban infrastructure. Most drivers have no awareness of traffic flow and on every traffic light cycle some cars block the road and pedestrian crossings. The traffic lights themselves are pretty funky. Pedestrian lights have animated suggestions to press the beg button, and for short cycle intersections instead of displaying seconds as a number they animate a hourglass icon.
+
+I walked up to [Nikola Tesla Museum](https://maps.app.goo.gl/fkAxu7ZPt6hcQmmR8) to see a sizeable queue outside. I checked the Google Maps reviews and some of them stated the museum is open for groups only, and the guide rushes through, with no option to thoughtfully research the exhibits.
+
+This set the theme for the entire day. [Railway Museum](https://maps.app.goo.gl/98Fp1foG6bKwAJrX6) was closed until monday, [Belgrade City Museum](https://maps.app.goo.gl/fZozs6ygZBjqRqKi8) was closed for reconstruction, [Chocolate Museum](https://maps.app.goo.gl/9XHdsnU2pveWhfFb8) was for groups only (and in Serbian language). Skipped all three.
+
+In between these failures it started raining, and i waited out the downpour at [Burrito Madre](https://maps.app.goo.gl/tMUh4dgNVV2UKUu27). They had pretty good burritos, but no Wi-Fi.
+
+[Belgrade Fortress](https://maps.app.goo.gl/RzgHThuNmVCGkAgB8) was a very fresh take, with restaurants, museums and archery ranges inside. A very chill place to walk around. Entrance to public spaces is free, highly recommended location.
+
+I walked back to the hotel and spent the rest of the evening looking for POIs in Budapest, Hungary. I had the hotel booked for another full day, with not many POIs left to visit.
+
+## 2025.05.18
+
+Woke up with power and Wi-Fi.
+
+Spent some time in [Kafeterija Čarli Čaplin](https://maps.app.goo.gl/MkMzsNx3VSSXMHLfA) looking for POIs in Bratislava. Together with Budapest, i have pinned enough things to do next week, and then i likely have enough time to visit some cities in Poland and Czechia on the way back home.
+
+I'm feeling a burnout from traveling. Like last year, i gathered so many ideas to improve my projects and be much better prepared for the upcoming adventures, and now i want to be back to my 2x1440p setup. [Automuseums-gpx](https://github.com/TheStalwart/Automuseums-gpx) and [Tripadvisor-gpx](https://github.com/TheStalwart/dotswt/blob/master/userscripts/Tripadvisor%20export%20to%20GPX.user.js) i built last year, improved my planning flow so much, I'm very motivated to build even more tools after this trip is over.
+
+On my way to the Sava river i hopped into McDonalds because they had some weird chicken burger on the menu. The big surprise was the plastic straw i got with my drink. Makes sense though, Serbia is not a EU member state yet. Unsurprisingly, non-white children begging for money are in the center of every capital city except Poland. I don't remember having sex with women of color so i ignored the kid.
+
+I walked through what looks like [Ķīpsala](https://maps.app.goo.gl/Jhuam6XjH6uJKzb87) but bigger, found a [Harley-Davidson and Royal Enfield dealership](https://maps.app.goo.gl/kTFTyt3cPcUQ4Rys8) that was closed on sundays, and sat down for a beer in the [nearby motorcycle-themed bar](https://maps.app.goo.gl/2N5wj8xVy39MRRy69). Looked up a Honda dealership nearby, but it's also closed on sundays. I guess i will spend the rest of the day on the laptop.
+
+I found out public transport is free in Belgrade, so took a bus back to the hotel and went to bed early.
+
+## 2025.05.19: Belgrade -> Budapest
+
+On my way out of Serbia i noticed [Žeravica Museum](https://maps.app.goo.gl/sXyHvsfzkbRXfBTp6) should be open on mondays, and after i found out the tickets are sold in the nearby Bosch office - it was indeed open. Pretty cool museum with lots of tractors, electronics and other vintage products.
+
+I stopped in the small city in the middle of nowhere for a burger at [Hamburgerija Lala](https://maps.app.goo.gl/JfGQ2JxF5pTbHqD99). The "restaurant" was on Nikola Tesla street, and the banknote i got as a change also featured Nikola Tesla.
+
+The last stop was in Horgoš, 1km from border checkpoint. I bought a can of Monster Energy, and was buying a Hungarian vignette at the parking lot when an old Zastava pulled up. As I thought "Big Shitbox Energy", the driver reached out through the window to exterior door handle to open the door and get out.
+
+I got my passport stamped, and reconfigured Waze to use highways. Northern part of Serbia was flat and boring, i assumed i won't miss anything taking a toll road in Hungary.
+
+After a few more hours of full throttle riding, I stopped at the IKEA just a few kilometers from Budapest to buy a coffee and book a hotel, then went directly to [Triple M Hotel](https://maps.app.goo.gl/AgEMMxx6uDL959hZ8). It has a safe underground parking, but costs 10 EUR/night. However, this seems to be normal for Budapest, i couldn't find any hotels with free parking in the price range of <50 EUR/night.
+
+I went for a short walk to see the area, and walked into [BarCraft Corvin](https://maps.app.goo.gl/u1s9LQmLWcyzNkbp9). It had no food, but the beer was ok. While i was once again confirming that buying a used 2020+ Africa Twin doesn't make any financial sense, all the food spots closed, so i went to sleep.
+
+{{< instagram DJ1wTRxCnDm >}}
+
+## 2025.05.20
+
+I went for a walk way too early. Cat museum was card only, but still closed, Underground railroad museum was open, but cash only. I was really tired of cash at this point, and all the ATMs in the area looked scammy (as i researched - they indeed were). I set my YouTube playlist to some long interviews and went for a long walk, away from dirty and disgustingly multicultural city center.
+
+In general, Budapest looks a lot like Riga. Older architecture around city center, and more modern apartment blocks on the periphery.
+
+Street signs in Budapest are pretty cool. They display building numbers for a particular block, and numbering direction.
+
+Halfway through a 4-hour interview i reached [Hungarian Railway Museum](https://maps.app.goo.gl/4bLSBD7roDh3vJqP7) and it was pretty cool, very similar to a railway museum near Prague, Czechia. This one had scale railroad tracks looped around the entire museum for kids to ride, while Czechs had full scale narrow gauge steam locomotive for the similar purpose.
+
+As i looped my route back to the hotel, i ran out of energy. After ~5 hours and >15km of walking i doomscrolled for a while to recover, then walked outside again, for a couple more kilometers of walking.
+
+The challenge to have a dinner after 9 PM in a place that is not an utter shithole seemed impossible, but eventually i found a curious [Master Italian Restaurant](https://maps.app.goo.gl/yK2GSfbBY3BpuN6ZA). The entire staff was Chinese, and pizza was a bit more greasy than i like, but it was still a pretty good experience.
+
+## 2025.05.21
+
+Woke up with a headache. Decided to go to a cat cafe to write this report, and get my clothes washed along the way.
+
+On the way to the cafe i had a light breakfast at [Erzsike Espresso & Lángos](https://maps.app.goo.gl/VfmUXcbfRgcoSEZaA). The sandwich was ok, nothing special, not worth a detour.
+
+Got my clothes washed at [Bubbles Mosoda, VI. Paulay Ede](https://maps.app.goo.gl/XhgdMsQ2YMMo2Dij7). Did not find a Wi-Fi password, but there were couches and the delicate wash cycle was just 30 minutes and 7 EUR. Did not pay extra for a dryer.
+
+With a bag of slightly damp but clean clothes i went to the [Cat Cafe](https://maps.app.goo.gl/57BxrNAYjsLdNdn79). Cats there seem to lose interest in the toys they previously enjoyed, as soon as i touch them. But i enjoyed the commotion, and good enough furniture, to spend hours on a laptop. No indoor smoking and not too loud. Coffee was ok. Wrote this report here.
+
+For a late dinner i went to [OINOS](https://maps.app.goo.gl/brK3jXSvb5YhnhPb8). Pizza, beer, and the venue itself - were all good, just a bit on the expensive side.
+
+I drained all of my power banks in cat cafe, so i set up a charging experiment and went to sleep.
+
+## 2025.05.22: Budapest -> Bratislava
+
+Guess what, unlike Xiaomi, [the Samsung power bank](https://www.samsung.com/us/mobile/mobile-accessories/phones/45w-20-000-mah-battery-pack-beige-eb-p4520xuegus/) can be charged with a regular 5V USB 2.0 source. Sure, it takes a long time, but it's still better than blinking lights for 3 days and accumulating no charge, like Xiaomi does.
+
+I couldn't find any interesting routes between two capital cities, so i had 200km of boring full throttle (110km/h) riding on a straight highway.
+
+I was in a bad mood all day until i reached [the hotel i booked in Bratislava](https://maps.app.goo.gl/ZnsLm7hywWxyxSWz7). It's weird AF, everything is painted weird colors, there's _a two page essay_ with homeopathic product ads to welcome guests (with the Wi-Fi password on the very last line of the second page). I don't mind the "[Looming Hostel](https://maps.app.goo.gl/CREZSxkrYougdbSY8) from Temu" vibe, but the fact it was one of the very few affordable hotels close to the city center is annoying. I liked Romanian and Bulgarian hotel prices much better. Budapest and Bratislava are significantly more expensive with lower quality of service.
+
+I went for a walk to [Mačkafé](https://maps.app.goo.gl/UVfwphRveRqeEHWb9) cat cafe. It was cash only, so i had to take another lap around the block to withdraw paper money. Fortunately, unlike Budapest, i quickly found a real bank with non-predatory ATM.
+
+Spent some time in the cafe with a laptop, then walked back to the hotel to sleep.
+
+## 2025.05.23
+
+I started the day with a cheap baguette and Monster Doctor, waiting for a museum to open.
+
+[Bratislava Transport Museum](https://maps.app.goo.gl/ASRBtLacrVa7NonM7) was pretty cool. It had bicycles, motorcycles, cars and trains. A very interesting part was a gallery of historical railroad photos compared to the photos of the same area at present time. Quote of the day (from 1838): "Railway is a modern invention, spreading immorality and sin".
+
+Walked around the old town, saw a cool [statue of the witch](https://maps.app.goo.gl/BLJqKdwR5sA71heV9) and visited [Clock museum](https://maps.app.goo.gl/LbRoaMnCU1PzaPaw5). Then, walked towards the railroad museum, but at some point i realized my pace is not enough to see the exhibits before the museum is closed, so i turned around and closed the lap through some rich people's area with expensive looking houses and cars.
+
+I spent some time in the hotel planning a route to (and through) Poland, then went to [Pizzeria Metropol](https://maps.app.goo.gl/kmbsKxef23cjNkyCA) for cheap pizza and beer.
+
+## 2025.05.24
+
+It was saturday, so i decided to ride my bike to the museums.
+
+The first was [Railway Museum](https://maps.app.goo.gl/5E1VLARFE9YoUme38). Some cool exhibits, but i wouldn't consider it a true museum, it's more of a dumping ground for some train-related stuff. Free parking and free entrance though. Enjoyed the walkaround.
+
+Next was [Oldtimer Gallery - Múzeum Veteránov](https://maps.app.goo.gl/RB4HmChvTwzia2Zb6). Very good collection of vehicles made in Czechoslovakia, and also a small coffee bar.
+
+I ran out of ideas, went back to the hotel to leave my bike there, and to walk to [Horský park](https://maps.app.goo.gl/vy9UzD2uXVdhPucd9) i saw on the map. Petting zoo was closed, and bars there didn't offer any food I'd enjoy, so i just hiked _through_ the park. It looked hardcore with very steep hills and stairs, but as i kept looking for an easier route i realized there are many trails of various difficulty, interlinked to provide all kinds of running/hiking routes, and quite a few opportunities to take a break with benches, swings etc.
+
+I walked out of the park and found the [Laksa & Grill](https://maps.app.goo.gl/chYQfxHZuJcbYcrG8) place. I did not expect this kind of quality meal, but rice and chicken bowl they serve was excellent and highly recommended. Beer was pretty good as well.
+
+I went back to the hotel to get a good sleep, because my plan for the next day was to just ride all day towards home.
+
+## 2025.05.25: Bratislava -> Katowice
+
+My attempts to find a less boring route failed. What looked like curvy roads on the map, was in fact just villages with slow traffic and speed bumps.
+
+I switched off "Avoid Highways" option in Waze and was riding full throttle on faster roads for a while. In Dolná Ves i stopped to check the map for a nearby fuel station, confirmed there is one in 3km, and couldn't restart the engine. Even though by my estimates this was unlikely, I assumed the fuel level got too low for the pump to pick it up reliably and was plotting a plan to push the bike for 3km, refuel and continue. I asked a guy riding a bicycle who looked local, if he had a few liters of fuel to sell me, and he brought some, but the engine still did not start. Now _that_ looked suspicious. He suggested we push the bike for a few hundred meters to a local mechanic, and i had no better ideas.
+
+During increasingly demotivating 3 hours we verified that injector injects and spark is sparkly, but for some reason we can't start the bike unless we crank it for like 5 minutes, and even if it manages to run - it wouldn't idle reliably.
+
+Our last idea was, that maybe the emergency fuel we filled was old, so we drained the tank and refueled with fresh 100 octane. The engine started and was idling reliably. We thought we solved the issue, but as i will discover the next day - we did not. However, i reached Katowice by the end of the day with no technical difficulties.
+
+How good the food must be for [GRILLOWNIA](https://maps.app.goo.gl/B8jtDbGkY7cwtSSd7) to have 4.9-star average review on Google Maps while not serving any beer? Got my order of a very well seasoned chicken steak with no sauce. I was about to bitch about the lack of sauce, turns out the meat is so good i didn't need any extra sauce.
+
+I went to sleep confident i will spend the entire next day riding to reach Marijampolė.
+
+{{< instagram DKE3HxfiXu8 >}}
+
+## 2025.05.26: Katowice -> Warsaw
+
+Woke up in a good mood and rode for 300km from Katowice to Kotowice. Stopped to refuel, and the bike refused to restart.
+
+This looked like the same issue as yesterday, except i had a full tank of fresh, seemingly good quality fuel. In the next hour of drained the battery trying to encourage it with different throttle positions and swear words. Well, at least I was ~20km away from a Royal Enfield dealership, so i waited for a trailer.
+
+The engine had low compression and there was smoke coming from airbox when cranking. Valvetrain needed a rebuild, and one of the mechanics stated these Himalayan 411 engines usually need a head rebuild every 10000km. My bike had 9300km on the odometer.
+
+Overly optimistic mechanics told me they will try to revive the engine by adjusting valves and letting it idle for a while, so i booked a room barely big enough for a single bed and went to [Semolino](https://maps.app.goo.gl/ugDQB2BdoaYEmSCs5) to drown my sorrow in average beer.
+
+## 2025.05.27: Warsaw -> Riga (on a bus)
+
+I wanted to give the workshop more time to revive my bike so i had a deliberately slow morning.
+
+I had a nice breakfast at [Przystanek Piekarnia](https://maps.app.goo.gl/2FQCww5tXin7iAFE6), withdrew some cash from a predatory ATM, and walked to the workshop.
+
+Surprisingly, they added 25km to the odometer since i left the bike the day before. It started and idled reliably, and gave me no reason to take a bus. I packed all my luggage and departed.
+
+Nope, bike's dead again after just 1km. Pushed it back to the workshop and bought a bus ticket. The [Quick serwis motocyklowy](https://maps.app.goo.gl/F3RGyjk2DB4bXUCG7) will rebuild the head, and i will come back to Warsaw in 2-3 weeks to ride back home.
+
+I had a few more hours to waste in Warsaw, so i walked through the parks, had a noodle bowl at [Fugu Sushi](https://maps.app.goo.gl/91KJb7Y6pPdts8gK8), and bought my last (in a while) can of Monster Doctor at the bus station.
+
+The trip is to be considered over.
