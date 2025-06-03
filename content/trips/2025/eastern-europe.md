@@ -642,3 +642,13 @@ Nope, bike's dead again after just 1km. Pushed it back to the workshop and bough
 I had a few more hours to waste in Warsaw, so i walked through the parks, had a noodle bowl at [Fugu Sushi](https://maps.app.goo.gl/91KJb7Y6pPdts8gK8), and bought my last (in a while) can of Monster Doctor at the bus station.
 
 The trip is to be considered over.
+
+## Conclusions
+
+I planned to try [Kurviger](https://kurviger.com/en/features) and [OsmAnd](https://osmand.net/) to find better routes, but ended up using Waze exclusively, and just shaped the route with extra milestones. In Romania and Bulgaria enabling "Avoid highways" resulted in very enjoyable routes most of the time. Sure, if you're stuck in a flat and boring location like Poland - you might need extra tools to find fun roads to ride, but if you have the opportunity to reach mountains - just do that, and anywhere you go will be fun.
+
+The choice of bike was right. I did not go offroad, but good suspension made quite a few routes properly enjoyable. There are lots of "old" roads around Eastern Europe that have excellent curvature and views, but worn out _surface_. As for low power - on fun roads i didn't feel short of it, unless i was stuck behind some slow BMW that wouldn't go uphill faster than 30km/h. To overtake those though, i would need a heavy and expensive liter bike, which might bring some drawbacks elsewhere. I am not convinced a mid-size bike would be any better for the job, besides saving a couple hours skipping Poland on highways. For my next trip, whenever it comes, i would like to get a mid-high end adventure bike, now when I understand why this class is so popular.
+
+I had a very good time and spent considerably less money than in Central Europe last year. Food cost about as much as elsewhere, but fuel, museums and accommodation were cheaper. I spent much more time riding between cities as very few locations had fun things to do for longer than 2 days, but with mountain roads there - I did not mind.
+
+In 5 weeks i was traveling, i did not get tired, as much as i accumulated a backlog for all my travel planning app projects. Tools i developed between this and last years' trip were used daily, and saving me a lot of time and effort, but I saw new opportunities for improvement, and wanted to go back home to spend time building better tools to plan my next adventures, hopefully to more Balkan countries.
