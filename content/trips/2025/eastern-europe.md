@@ -1,7 +1,5 @@
 # 2025 Moto Trip to Eastern Europe
 
-⚠️ This report is Work in Progress, as i am currently traveling.
-
 Track and POIs on Google My Maps: <https://www.google.com/maps/d/edit?mid=1-hnJ2sYAd7xVeXgO-gmcTWH4QKqK0Sc&usp=sharing>
 
 ## Introduction
